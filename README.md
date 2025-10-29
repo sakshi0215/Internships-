@@ -19,7 +19,7 @@ Internship completion documents for reference.
     
     •	Monitored trends and analysed campaign performance for improvements.
 
-2.Snatch Cookies Pvt. Ltd. - B2B Client Relationship Intern
+2.Snatch Cookies Pvt. Ltd. - Analyst - B2B Intern
 (10 June 2025 – 15 September 2025)
 
     •	Managed B2B client data in Excel using Pivot Tables/VLOOKUP for onboarding and order tracking.
